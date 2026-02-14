@@ -1,5 +1,4 @@
-# it-stud.io
-# Hi, ich bin Christin 👋
+# Hi, ich bin Christian 👋
 
 **CEO & Stratege @ [it-stud.io](https://it-stud.io)**
 
